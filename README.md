@@ -20,5 +20,5 @@ Participación en el IEEEXTREME 18.0 (Edición 2024)
 [Certificado IEEE_2024.pdf](https://github.com/user-attachments/files/24690482/Certificado.IEEE_2024.pdf)
 [Certificados TOP 20_IEEE.pdf](https://github.com/user-attachments/files/24690483/Certificados.TOP.20_IEEE.pdf)
 
-Participacion en el IEEEXTREME 19.0 (eDICIÓN 2025)
+Participacion en el IEEEXTREME 19.0 (Edición 2025)
 [Certificados IEEEXtreme Top Nacional_Mateo Cobo.pdf](https://github.com/user-attachments/files/24690493/Certificados.IEEEXtreme.Top.Nacional_Mateo.Cobo.pdf)
